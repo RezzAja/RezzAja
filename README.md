@@ -9,9 +9,9 @@
 
 - 💬 Ask me about **react, vue, laravel, and Frontend**
 
-- 📫 How to reach me **jakfar.ilham23@gmail.com**
+- 📫 How to reach me **f4khrrozy.22nkh@mail.com**
 
-- WhatsApp or Mobile Phone Number **+62-8222-9062-398**
+- WhatsApp or Mobile Phone Number **+62-877-5249-4052**
 
 - ⚡ Fun fact **Pernah Jadi Ultramen**
 
