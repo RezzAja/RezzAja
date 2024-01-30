@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **f4khrrozy.22nkh@mail.com**
 
-- WhatsApp or Mobile Phone Number **+62-877-5249-4052**
+- WhatsApp or Mobile Phone Number **+62-822-2971-9289 **
 
 - ⚡ Fun fact **Pernah Jadi Ultramen**
 
