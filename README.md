@@ -1,4 +1,4 @@
-# ![Header Image](https://cdn-brilio-net.akamaized.net/news/2019/10/15/172299/750xauto-40-kata-kata-mutiara-cinta-islami-romantis-dan-penuh-makna-1910158.jpg) 
+# ![Header Image](https://media.istockphoto.com/id/829782146/id/vektor/pengusaha-muslim-arab-atau-programmer-duduk-di-meja-kantornya-bekerja-dengan-laptop-ilustrasi.jpg) 
 <h1 align="center">Hi 👋, I'm M. Fakhrur rozi N K</h1>
 <h3 align="center">A passionate web developer from Paiton, Probolinggo, Indonesia</h3>
 <img align="right" width="400" src="https://3.bp.blogspot.com/-DJx89IyCBi0/WDaCFgU9rkI/AAAAAAALcBw/COU3ViyX50Idj26GF46ilIV7Iw8pwcF5gCLcB/s1600/AS000840_04.gif">
